@@ -1,8 +1,8 @@
 # About Me
 
-I am an Aspiring Graphic Designer, a Certified Data Analyst and a Final Year College Student, pursuing Bachelor Of Commerce. I enjoy working with data but my real interest lies in design.
+I am a Brand Identity Designer, a Certified Data Analyst and a Final Year College Student, pursuing Bachelor Of Commerce. I enjoy working with data but my real interest lies in design.
 
-I work with data based on logic and structures, but my design is driven by my raw intuition and visual experimentation. Designing is what I am doing currently and actively as a freelancer, and data is something I use in each step of design.
+Whenever I work with data, it's based on logic and structures, but my design is driven by my raw intuition and visual experimentation. Designing is what I am doing currently and actively as a freelancer, and data is something I use in each step of design.
 
 I would like to say that data and design looks good when blended, but separately, they tell stories no one wants you to know!
 
@@ -14,11 +14,11 @@ Want to know more about me, head to my [bio.site](https://bio.site/anshika_kashy
 
 # Digital Product
 
-Want to buy some stunning digital wallpaper's, fill the below mentioned form to grab some wallpaper's made by me:
+Want to buy some stunning digital wallpaper's, fill the below mentioned form to grab some wallpaper's created by me:
 
 Form : [Purchasing A Pratibha Wallpaper](https://tally.so/r/A7rr6k)
 
-# E-mail
+# Connect
 
 kashyapanshika2124@gmail.com
 
