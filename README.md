@@ -1,3 +1,7 @@
+# Note
+
+Available For Freelance! I am a self-taught Brand Identity Designer. If you are open to fresh perspectives and honest efforts, I would love to contribute through my visuals.
+
 # About Me
 
 I am a Brand Identity Designer, a Certified Data Analyst and a Final Year College Student, pursuing Bachelor Of Commerce. I enjoy working with data but my real interest lies in design.
@@ -28,6 +32,6 @@ For design projects, please fill out the mentioned form first, and email if need
 
 Form : [Let's Connect](https://tally.so/r/n00z7j)
 
-# Note
+# Important
 
 Please refer to the general policy provided in the above mentioned form, before contacting for any graphic design project.
