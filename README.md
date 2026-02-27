@@ -12,15 +12,7 @@ I would like to say that data and design looks good when blended, but separately
 
 For my Data Analytics skills, you can see my Popular Repositories. For my Designing skills, you can see my [design portfolio](https://sites.google.com/view/anshikakashyap-designportfolio/about).
 
-# More About Me
-
 Want to know more about me, head to my [bio.site](https://bio.site/anshika_kashyap).
-
-# Digital Product
-
-Want to buy some stunning digital wallpaper's, fill the below mentioned form to grab some wallpaper's created by me:
-
-Form : [Purchasing A Pratibha Wallpaper](https://tally.so/r/A7rr6k)
 
 # Connect
 
