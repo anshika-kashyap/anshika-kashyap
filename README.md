@@ -6,7 +6,7 @@ Available For Freelance! I am a self-taught Brand Identity Designer. If you are 
 
 I am a Brand Identity Designer, a Certified Data Analyst and a Final Year College Student, pursuing Bachelor Of Commerce. I enjoy working with data but my real interest lies in design.
 
-Whenever I work with data, it's based on logic and structures, but my design is driven by my raw intuition and visual experimentation. Designing is what I am doing currently and actively as a freelancer, and data is something I use in each step of design.
+Whenever I work with data, it's based on logic and structures, but my design is driven by my raw intuition and visual experimentation. Designing is what I am doing currently and actively as a freelancer, and data is something I use in each step of design. About design, though my designing skills has a wide range, my forte is luxury and simplicity based brand designing while keeping the brand and audience demand in mind.
 
 I would like to say that data and design looks good when blended, but separately, they tell stories no one wants you to know!
 
