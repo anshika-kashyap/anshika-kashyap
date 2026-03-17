@@ -20,4 +20,4 @@ Form : [Let's Connect](https://tally.so/r/n00z7j)
 
 # Note
 
-Please refer to the general policy provided in the above mentioned form, before contacting for any graphic design project.
+Please refer to the general policy and 'how working with me works' section provided in the above mentioned form, before contacting for any graphic design project.
