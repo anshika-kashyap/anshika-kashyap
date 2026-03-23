@@ -14,7 +14,7 @@ kashyapanshika2124@gmail.com
 
 The fastest way to reach me is via email.
 
-For design projects, please fill out the mentioned form first, and email if needed.
+For free brand audit, please fill out the form. For freelance branding projects, please fill out the form first, and email if needed.
 
 Form : [Let's Connect](https://tally.so/r/n00z7j)
 
