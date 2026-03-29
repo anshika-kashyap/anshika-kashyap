@@ -1,8 +1,6 @@
-# About Me
+# About
 
-I am a Freelance Brand Identity Designer, a Certified Data Analyst and a Final Year College Student, pursuing Bachelor Of Commerce. I enjoy working with data but my real interest lies in design.
-
-My design is driven by my raw intuition and visual experimentation. Designing is what I am doing currently and actively and data is something I use in each step of design. Though my designing skills has a wide range, my forte is luxury and simplicity based brand designing while keeping the brand and audience demand in mind.
+Designing is what I am doing currently and actively and data is something I use in each step of design. Though my designing skills has a wide range, my forte is luxury and simplicity based brand designing while keeping the brand and audience demand in mind.
 
 For my Data Analytics skills, you can see my Popular Repositories. For my Designing skills, you can see my [design portfolio](https://sites.google.com/view/anshikakashyap-designportfolio/about).
 
@@ -12,12 +10,10 @@ Want to know more about me, head to my [bio.site](https://bio.site/anshika_kashy
 
 kashyapanshika2124@gmail.com
 
-The fastest way to reach me is via email.
+The fastest way to reach me is via email. For projects, book a discovery call below:
 
-For free brand design audit, please fill out the form. For freelance branding projects, please fill out the form first, and email if needed.
-
-Form : [Let's Connect](https://tally.so/r/n00z7j)
+[Book A Brand Clarity Call](https://bio.site/anshika_kashyap)
 
 # Note
 
-Please refer to the general policy and 'how working with me works' section provided in the above mentioned form, before contacting for any graphic design project.
+For work clarity, I suggest you to read the general policy and FAQs mentioned in my design portfolio before connecting me for a project.
